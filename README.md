@@ -2,4 +2,4 @@
 
 Hi guys :)
 
-My name is Dominika (24y.) and I am totally begginer with coding. 
+My name is Dominika (24y.) from Slovakia and I am total newbie. 
